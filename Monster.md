@@ -36,7 +36,7 @@ Al final, el monstruo decidió buscar un nombre en el interior del castillo.
 - Si logras que me recupere y me hace un niño sano y fuerte, mi nombre es tuyo -replicó el príncipe enfermo.
 Y así fue cómo el monstruo se introdujo en el interior del príncipe.
 
-![alt tag](http://i.imgur.com/QOJhJCV.jpg
+![alt tag](http://i.imgur.com/QOJhJCV.jpg)
 
 Y éste se curó milagrosamente.
 
